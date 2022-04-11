@@ -14,6 +14,7 @@ I stayed with a Costa Rican family that lived just steps from the school. We spe
 More pictures from my time abroad! 
 
 <img src = "https://user-images.githubusercontent.com/98546888/162658777-b41a700e-a717-421f-971c-9a36d92f83bf.JPG" alt = "drawing" width = "300"/> <img src = "https://user-images.githubusercontent.com/98546888/162658803-82353237-505c-4609-bfd8-6460a2adca48.JPG" alt = "drawing" width = "300"/> 
+
 <img src = "https://user-images.githubusercontent.com/98546888/162658823-e153a804-a667-4308-9691-b4ab5318ddfd.JPG" alt = "drawing" width = "300"/> <img src = "https://user-images.githubusercontent.com/98546888/162658841-560fd0ea-d109-408f-a5ab-8fe65fb36e9d.JPG" alt = "drawing" width = "300"/> 
 
 
