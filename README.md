@@ -11,4 +11,8 @@ My most recent and thorough cultural experience came during the fall of my senio
 
 I stayed with a Costa Rican family that lived just steps from the school. We spent nearly every night laughing around the dinner table or playing Uno instead of doing homework. Living with a local family is probably the best method to pursue cultural immersion and I am so grateful for the host family that took me in. 
 
+More pictures from my time abroad! 
+
+![be4b50e8-638d-4536-8eec-6a3af9a657ab](https://user-images.githubusercontent.com/98546888/162658777-b41a700e-a717-421f-971c-9a36d92f83bf.JPG)![e152f1a5-c54e-4832-9409-98145ae16327](https://user-images.githubusercontent.com/98546888/162658803-82353237-505c-4609-bfd8-6460a2adca48.JPG)![407f8060-5828-4181-85ad-f99b7f805565](https://user-images.githubusercontent.com/98546888/162658823-e153a804-a667-4308-9691-b4ab5318ddfd.JPG)![f11405aa-dd60-40f6-b3a2-8b9ebc10a63f](https://user-images.githubusercontent.com/98546888/162658841-560fd0ea-d109-408f-a5ab-8fe65fb36e9d.JPG)
+
 
